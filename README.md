@@ -1,2 +1,2 @@
-Hammad Asad
-https://www.facebook.com/hammi.king.9?mibextid=ZbWKwL
+Waqas Ahmad
+https://www.facebook.com/waqasahamd1225?mibextid=ZbWKwL
